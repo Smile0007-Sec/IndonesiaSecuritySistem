@@ -1,2 +1,0 @@
-# IndonesiaSecuritySistem
-Xxxxx
